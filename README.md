@@ -1,2 +1,0 @@
-# evgeniypolovniy.github.io
-## Hello!
